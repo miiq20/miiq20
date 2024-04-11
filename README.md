@@ -1,1 +1,1 @@
-
+I am Chairman of the Board and Chief Executive Officer of Yunda Technology Development Company Limited. Graduated from Changchun University of Science and Technology, majoring in mechanical and electrical engineering. Engaged in enterprise management work for nearly 20 years.
